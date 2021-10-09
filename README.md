@@ -1,0 +1,2 @@
+# dedi
+Belajar menuju kesuksesan
